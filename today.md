@@ -1,5 +1,5 @@
 
-# TODAY
+# CHOICES OF THE DAY: SHRIMP
 Wow
 what a day!
 today!
